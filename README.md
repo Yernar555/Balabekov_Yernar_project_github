@@ -1,0 +1,1 @@
+# Balabekov_Yernar_project_github
